@@ -1,5 +1,11 @@
 # Software By Jove
 
+# Support
+
+For any of our applications, including, "Decice What to Eat", you may contact us at **Email:** [softwarebyjove@gamil.com] 
+
+
+
 # Privacy Policy
 
 **Effective Date:** July 8, 2025
